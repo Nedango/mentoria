@@ -8,7 +8,7 @@ Daniel Neri
 
 ## Qual meu sonho na carreira?
 
-Quero evoluir e me tornar um grande profissional
+Evoluir sempre e me tornar um grande profissional.
 
 ## Alguns links para me conhecer melhor
 
